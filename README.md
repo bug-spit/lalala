@@ -1,4 +1,4 @@
-# general
+# general pt info
 ~~~
 test repository?? idk how the hell to code and this is just for ponytown info anyway. whatevs
 ~~~
