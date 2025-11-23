@@ -17,7 +17,7 @@ i LOOVE making friends !! i dont bite i promise
 ---
 **DNI**
 
-transphobes, homophobes, zoos, pedos, maga or right-wing in general, TERF, nazi, etc. you get the jist
+transphobes, homophobes, zoos, pedos, maga or right-wing people in general, TERFs, nazis, etc. you get the jist
 
 also dni if you ship stridercest, jetcest, optibee,, incest and/or stepcest in generaall........
 
